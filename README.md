@@ -1,4 +1,4 @@
-#Yo I am kelp. 
+# Yo I am kelp. 
 
 Computers are pretty cool i guess. Not sure how much I will upload here tho. 
 
